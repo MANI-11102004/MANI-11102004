@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @ MANI SHANKAR
 - 👀 I’m interested in Learning New Things
-- 🌱 I’m currently i'm parsuing B-TECH
+- 🌱 Currently i'm parsuing B-TECH
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
